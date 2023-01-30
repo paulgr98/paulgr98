@@ -1,4 +1,4 @@
-![kotek](https://www.icegif.com/wp-content/uploads/2022/09/icegif-721.gif)
+![kotek](https://tenor.com/pl/view/gif-27485265)
 <!--
 **paulgr98/paulgr98** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
