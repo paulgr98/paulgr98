@@ -1,4 +1,4 @@
-![kotek](https://media1.tenor.com/images/d437c404f60dda2a0f30b407afb061aa/tenor.gif)
+![kotek](https://s3.gifyu.com/images/cat.gif)
 <!--
 **paulgr98/paulgr98** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
