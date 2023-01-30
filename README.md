@@ -1,5 +1,4 @@
-### Hi there 👋
-
+[https://i.pinimg.com/originals/fa/05/75/fa057582f44b477206a32e255bb8ca18.gif]
 <!--
 **paulgr98/paulgr98** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
